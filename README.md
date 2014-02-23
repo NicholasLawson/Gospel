@@ -10,4 +10,4 @@ time and care was taken ... from the forks and branches of this story ... an ent
 with possible movie contracts to come ... television deals ... how do you feel about building a universe starting
 with a city that has a 300 foot tall computer?
 
-I know you can code, that is not at question, I want to know if you can write?
+I know you can code, that is not at question, I want to know if you can write.
